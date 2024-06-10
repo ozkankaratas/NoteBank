@@ -1,0 +1,5 @@
+![Ekran görüntüsü 2024-06-03 173801](https://github.com/ozkankaratas/NoteBank/assets/93788046/31868b74-f04c-40fa-ae3b-59b6307d1843)
+![Ekran görüntüsü 2024-06-03 173811](https://github.com/ozkankaratas/NoteBank/assets/93788046/25624993-d363-41f6-aaac-71867c1547b7)
+![Ekran görüntüsü 2024-06-03 173819](https://github.com/ozkankaratas/NoteBank/assets/93788046/6a7ff7e6-2ca6-44db-93e8-5f2f379e4ae5)
+![Ekran görüntüsü 2024-06-03 173742](https://github.com/ozkankaratas/NoteBank/assets/93788046/791bdbf0-6402-45ae-8993-e1c607700b7d)
+![Ekran görüntüsü 2024-06-03 173751](https://github.com/ozkankaratas/NoteBank/assets/93788046/3d142910-650d-4be9-a982-dca8d68a97eb)
